@@ -7,7 +7,7 @@
 Ex-tech recruiter - I know what gets people noticed.
 
 ### Connect with me:
-If you need a LinkedIn photo that doesn’t look like it was cropped from a wedding picture, 
+If you need a LinkedIn photo that doesn’t look like it was cropped from a party picture, 
 or a set of portraits that makes people want to reach out, let’s talk:
 
 ### Social media:
